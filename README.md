@@ -1,15 +1,4 @@
-UNIT-I: ACTIVITIES ON LISTENING AND READING COMPREHENSION
 
-1. What is Listening?
-
-Hearing
-
-Effortless act of perceiving sound through ears.
-
-
-Listening
-
-Active process of understanding and extracting meaning from sound.
 
 Requires concentration and practice.
 
