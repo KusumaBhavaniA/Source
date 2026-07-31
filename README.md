@@ -1,14 +1,5 @@
 
 
-Requires concentration and practice.
-
-
-How to Start Listening?
-
-Identify different layers of sound.
-
-Focus on speech, background noise, and other sounds.
-
 Analyze voice characteristics and overall impression.
 
 
