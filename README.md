@@ -1,13 +1,5 @@
 
 
-Analyze voice characteristics and overall impression.
-
-
-2. Tools to Develop Listening Skills
-
-1. Headphones
-
-Improve clarity of speech content.
 
 
 2. Digital Audio Workstation (DAW)
