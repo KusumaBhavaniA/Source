@@ -8,12 +8,6 @@
 
 
 
-.
-
-
-4. Clarify and Paraphrase Information
-
-Repeat information to confirm understanding.
 
 
 5. Ask Questions
