@@ -2,10 +2,6 @@
 
 
 
-2. Digital Audio Workstation (DAW)
-
-Used for recording and analyzing audio.
-
 
 3. Place to Take Notes
 
