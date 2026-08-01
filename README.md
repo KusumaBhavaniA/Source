@@ -6,15 +6,6 @@
 
 
 
-Benefits of Active Listening
-
-Makes people feel heard.
-
-Builds empathy and relationships.
-
-Improves memory and conflict resolution.
-
-Useful in career and workplace communication.
 
 
 Active Listening Techniques
