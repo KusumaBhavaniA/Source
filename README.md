@@ -8,17 +8,6 @@
 
 
 
-Active Listening Techniques
-
-1. Focus on Intent and Purpose
-
-Give complete attention to the speaker.
-
-
-2. Pay Attention to Body Language
-
-Observe facial expressions, posture, and eye contact.
-
 
 3. Give Encouraging Verbal Cues
 
