@@ -3,14 +3,6 @@
 
 
 
-3. Place to Take Notes
-
-Helps describe and remember what is heard.
-
-
-4. Take Breaks
-
-Prevents ear fatigue and improves effectiveness.
 
 
 3. What is Active Listening?
