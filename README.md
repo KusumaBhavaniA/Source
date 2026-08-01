@@ -8,10 +8,7 @@
 
 
 
-
-3. Give Encouraging Verbal Cues
-
-Use responses like "Yes", "I see", and "I understand".
+.
 
 
 4. Clarify and Paraphrase Information
