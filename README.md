@@ -5,14 +5,6 @@
 
 
 
-3. What is Active Listening?
-
-Paying full attention to the speaker.
-
-Demonstrating understanding and empathy.
-
-Helps retain information and build relationships.
-
 
 Benefits of Active Listening
 
