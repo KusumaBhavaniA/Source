@@ -1,8 +1,4 @@
 
-
-Review important points at the end of conversation.
-
-
 4. Reading Techniques
 
 Productive Reading Techniques
