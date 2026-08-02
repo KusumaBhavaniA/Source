@@ -1,10 +1,5 @@
 
 
-Remain open-minded and unbiased.
-
-
-7. Summarize, Share, and Reflect
-
 Review important points at the end of conversation.
 
 
