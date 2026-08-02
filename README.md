@@ -1,14 +1,5 @@
 
 
-
-
-
-
-
-
-
-6. Refrain from Judgment
-
 Remain open-minded and unbiased.
 
 
