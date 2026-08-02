@@ -7,14 +7,6 @@
 
 
 
-
-
-
-5. Ask Questions
-
-Remove confusion and show interest.
-
-
 6. Refrain from Judgment
 
 Remain open-minded and unbiased.
