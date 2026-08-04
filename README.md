@@ -1,7 +1,4 @@
 
-
-
-
 SQ3R
 
 Skimming
