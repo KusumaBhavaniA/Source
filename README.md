@@ -1,6 +1,6 @@
 
 
-Productive Reading Techniques
+
 
 SQ3R
 
