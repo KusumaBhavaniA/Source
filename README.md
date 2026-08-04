@@ -1,5 +1,5 @@
 
-SQ3R
+
 
 Skimming
 
