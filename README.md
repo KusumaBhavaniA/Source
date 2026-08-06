@@ -1,6 +1,4 @@
-
-
-Speed Reading
+red Reading
 
 Structure-Proposition-Evaluation (SPE) Reading
 
