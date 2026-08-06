@@ -1,7 +1,4 @@
 
-
-Scanning
-
 Active Reading
 
 Detailed Reading
