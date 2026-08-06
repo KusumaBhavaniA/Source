@@ -1,5 +1,4 @@
 
-Detailed Reading
 
 Speed Reading
 
