@@ -1,5 +1,4 @@
 
-Active Reading
 
 Detailed Reading
 
