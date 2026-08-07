@@ -1,6 +1,4 @@
 
-
-
 1. SQ3R Technique
 
 Steps:
