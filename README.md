@@ -1,4 +1,4 @@
-red Reading
+
 
 Structure-Proposition-Evaluation (SPE) Reading
 
