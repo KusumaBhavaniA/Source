@@ -1,7 +1,5 @@
 
 
-Structure-Proposition-Evaluation (SPE) Reading
-
 
 1. SQ3R Technique
 
