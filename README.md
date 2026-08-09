@@ -1,7 +1,5 @@
 
 
-Read
-
 Recite
 
 Review
