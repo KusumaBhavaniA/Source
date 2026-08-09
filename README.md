@@ -1,7 +1,5 @@
 
 
-Review
-
 
 2. Skimming
 
