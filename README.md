@@ -1,7 +1,5 @@
 
 
-Recite
-
 Review
 
 
