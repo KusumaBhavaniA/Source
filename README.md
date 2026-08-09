@@ -1,7 +1,5 @@
 
 
-Survey
-
 Question
 
 Read
