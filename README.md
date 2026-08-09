@@ -1,7 +1,5 @@
 
 
-Question
-
 Read
 
 Recite
