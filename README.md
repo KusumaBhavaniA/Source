@@ -1,7 +1,7 @@
 
 
 
-2. Skimming
+ Skimming
 
 Reading quickly to get the main idea.
 
