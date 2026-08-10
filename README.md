@@ -1,6 +1,4 @@
-
-
-Reading quickly to get the main idea.
+quickly to get the main idea.
 
 
 3. Scanning
