@@ -1,7 +1,4 @@
-
-
-
- Skimming
+imming
 
 Reading quickly to get the main idea.
 
