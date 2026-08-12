@@ -1,6 +1,4 @@
-
-
-Reading quickly to find specific information.
+information.
 
 
 4. Active Reading
