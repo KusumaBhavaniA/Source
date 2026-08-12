@@ -1,7 +1,4 @@
-
-
-
-4. Active Reading
+ Active Reading
 
 Engaging with the text for better understanding and retention.
 
