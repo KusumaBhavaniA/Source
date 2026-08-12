@@ -1,8 +1,5 @@
 
 
-
-3. Scanning
-
 Reading quickly to find specific information.
 
 
