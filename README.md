@@ -1,4 +1,4 @@
-quickly to get the main idea.
+
 
 
 3. Scanning
