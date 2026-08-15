@@ -1,7 +1,4 @@
 
-Careful reading for deep understanding.
-
-
 6. Speed Reading
 
 Reading faster without losing comprehension.
