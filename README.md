@@ -1,8 +1,4 @@
 
-
-
-
-
 5. Detailed Reading
 
 Careful reading for deep understanding.
