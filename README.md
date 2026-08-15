@@ -1,6 +1,6 @@
 
 
-Engaging with the text for better understanding and retention.
+
 
 
 5. Detailed Reading
