@@ -1,7 +1,6 @@
 
-6. Speed Reading
 
-Reading faster without losing comprehension.
+
 
 
 Techniques:
