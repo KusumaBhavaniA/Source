@@ -1,9 +1,5 @@
 
 
-
-
-Steps:
-
 Find the structure of the text.
 
 Identify author's propositions.
