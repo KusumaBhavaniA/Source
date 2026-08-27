@@ -1,9 +1,5 @@
 
 
-Use deadline strategy.
-
-Adjust reading speed.
-
 
 7. Structure-Proposition-Evaluation (SPE) Reading
 
