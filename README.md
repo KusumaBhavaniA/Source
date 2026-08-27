@@ -1,24 +1,4 @@
 
-
-Find the structure of the text.
-
-Identify author's propositions.
-
-Evaluate arguments and conclusions.
-
-
-5. Benefits of Reading
-
-1. Mental Stimulation for the Brain
-
-2. Stress Reduction
-
-3. Knowledge Enhancement
-
-4. Vocabulary Expansion
-
-5. Improves Memory
-
 6. Stronger Analytical Thinking Skills
 
 7. Improves Focus and Concentration
