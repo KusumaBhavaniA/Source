@@ -1,12 +1,5 @@
 
 
-
-
-
-Techniques:
-
-Guide your eyes.
-
 Use deadline strategy.
 
 Adjust reading speed.
