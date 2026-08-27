@@ -1,7 +1,6 @@
 
 
 
-7. Structure-Proposition-Evaluation (SPE) Reading
 
 Steps:
 
