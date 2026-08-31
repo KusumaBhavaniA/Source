@@ -1,7 +1,5 @@
 
 
-7. Improves Focus and Concentration
-
 8. Better Writing Skills
 
 6. Barriers to Effective Reading
