@@ -1,4 +1,4 @@
-hinking Skills
+
 
 7. Improves Focus and Concentration
 
