@@ -1,7 +1,5 @@
 
 
-8. Better Writing Skills
-
 6. Barriers to Effective Reading
 
 1. Lack of Grammatical and Linguistic Competence
