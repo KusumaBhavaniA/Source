@@ -1,5 +1,4 @@
-
-6. Stronger Analytical Thinking Skills
+hinking Skills
 
 7. Improves Focus and Concentration
 
