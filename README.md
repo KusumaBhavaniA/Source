@@ -1,7 +1,5 @@
 
 
-3. Lack of Concentration
-
 4. Improper Light and Ventilation
 
 5. Large Size of the Book
