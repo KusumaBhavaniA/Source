@@ -1,7 +1,5 @@
 
 
-5. Large Size of the Book
-
 6. Reading Aloud While Reading
 
 7. Using Finger or Pen While Reading
