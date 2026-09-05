@@ -1,7 +1,5 @@
 
 
-1. Lack of Grammatical and Linguistic Competence
-
 2. Lack of Motivation
 
 3. Lack of Concentration
