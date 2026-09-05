@@ -1,7 +1,5 @@
 
 
-4. Improper Light and Ventilation
-
 5. Large Size of the Book
 
 6. Reading Aloud While Reading
