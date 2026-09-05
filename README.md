@@ -1,7 +1,5 @@
 
 
-2. Lack of Motivation
-
 3. Lack of Concentration
 
 4. Improper Light and Ventilation
