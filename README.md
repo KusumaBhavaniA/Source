@@ -1,7 +1,5 @@
 
 
-6. Reading Aloud While Reading
-
 7. Using Finger or Pen While Reading
 
 8. Narrow Eye Span
