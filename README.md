@@ -1,7 +1,5 @@
 
 
-7. Using Finger or Pen While Reading
-
 8. Narrow Eye Span
 
 7. What is a Discourse Marker?
