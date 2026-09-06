@@ -1,8 +1,3 @@
-
-
-Improves fluency and communication.
-
-
 Functions of Discourse Markers
 
 1. Sequencing Information
