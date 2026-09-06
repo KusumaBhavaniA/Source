@@ -1,7 +1,5 @@
 
 
-Helps express feelings and attitudes.
-
 Improves fluency and communication.
 
 
