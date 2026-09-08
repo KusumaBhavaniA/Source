@@ -1,7 +1,5 @@
 
 
-1. Sequencing Information
-
 Examples:
 
 First
