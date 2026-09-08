@@ -1,7 +1,4 @@
 
-
-Examples:
-
 First
 
 Firstly
